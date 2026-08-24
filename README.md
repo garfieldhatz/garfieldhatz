@@ -23,3 +23,7 @@
 $${\color{#35373B} me \space and \space nash \space trust!! ⬆️}$$
 
 ![](https://64.media.tumblr.com/0aeccdf741262c5476fd05ac19853049/2e1ffcc0b98b3a6a-5c/s500x750/a717edeb9e949a59cdcbe43ec4930c14dda6d4ca.gifv)
+
+<p align="center"> <img width="500" height="450" alt="image" src="https://github.com/user-attachments/assets/c3105a0c-1d27-4135-bd4c-01dcbaccc8f9" />
+
+this page is a wip.
