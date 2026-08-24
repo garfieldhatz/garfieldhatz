@@ -21,3 +21,5 @@
 ![FREEME](https://64.media.tumblr.com/b0787dc99122a0e21aac3566c80d5566/eb760a7d04259373-18/s500x750/e2ed0d408d0e892cc460f218b6a683eddf0e65b8.gifv)
 
 $${\color{#35373B} me \space and \space nash \space trust!! ⬆️}$$
+
+![](https://64.media.tumblr.com/0aeccdf741262c5476fd05ac19853049/2e1ffcc0b98b3a6a-5c/s500x750/a717edeb9e949a59cdcbe43ec4930c14dda6d4ca.gifv)
