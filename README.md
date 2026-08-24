@@ -24,6 +24,10 @@ $${\color{#35373B} me \space and \space nash \space trust!! ⬆️}$$
 
 ![](https://64.media.tumblr.com/65e09dd8b314de938444e71971b6d1ab/e02f44a3f3025498-6e/s1280x1920/f1324cf80f75606760cb714761247e7aeb7bae7d.pnj)
 
+![](https://s7.ezgif.com/tmp/ezgif-7725b7bf95bcb9a9.webp)
+
+---
+
 <p align="center"> <img width="490" height="400" alt="image" src="https://github.com/user-attachments/assets/c3105a0c-1d27-4135-bd4c-01dcbaccc8f9" />
 
 this page is a wip.
