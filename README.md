@@ -22,7 +22,7 @@
 
 $${\color{#35373B} me \space and \space nash \space trust!! ⬆️}$$
 
-![](https://64.media.tumblr.com/0aeccdf741262c5476fd05ac19853049/2e1ffcc0b98b3a6a-5c/s500x750/a717edeb9e949a59cdcbe43ec4930c14dda6d4ca.gifv)
+![](https://64.media.tumblr.com/65e09dd8b314de938444e71971b6d1ab/e02f44a3f3025498-6e/s1280x1920/f1324cf80f75606760cb714761247e7aeb7bae7d.pnj)
 
 <p align="center"> <img width="490" height="400" alt="image" src="https://github.com/user-attachments/assets/c3105a0c-1d27-4135-bd4c-01dcbaccc8f9" />
 
