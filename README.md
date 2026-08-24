@@ -1,5 +1,9 @@
 <div align="center"> 
   
+  ![](https://komarev.com/ghpvc/?username=garfieldhatz&abbreviated=true&label="_hey,_losers!"&color=orange) <div align="center"> 
+
+<div align="center"> 
+  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=schoolbell&pause=500&color=F79007DF&multiline=true&width=435&lines=%22+I+can't+BELIEVE+I+got+in+trouble--;...Thanks+to+two+STUPID+WEIRD+KIDS!%22" alt="Typing SVG" /></a> <div align="center"> 
 
 <div align="center"> ────୨ৎ──── <div align="center"> 
