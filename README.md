@@ -1,1 +1,1 @@
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=100&color=E15E45&center=true&vCenter=true&multiline=true&width=435&height=100&lines=%22+I+can't+BELIEVE+I+got+in+trouble;thanks+to+two..+stupid+weird+kids!%22" alt="Typing SVG" /></a>
