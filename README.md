@@ -26,7 +26,7 @@ $${\color{#35373B} me \space and \space nash \space trust!! ⬆️}$$
 
  <div align="left"> 
 
-![fatty](https://64.media.tumblr.com/9991aa0a006fbcfc4bbc80621fbfd41f/a29e970ef39c6e4d-6d/s400x600/860ed9479eb50b378842b0c0f7e3d8d4dcfed6da.webp)  <div align="left"> 
+![fatty](https://64.media.tumblr.com/9991aa0a006fbcfc4bbc80621fbfd41f/a29e970ef39c6e4d-6d/s400x600/860ed9479eb50b378842b0c0f7e3d8d4dcfed6da.webp) ![](https://s8.ezgif.com/tmp/ezgif-8ad9f8bbd5241113.png)
 
 ---
 
