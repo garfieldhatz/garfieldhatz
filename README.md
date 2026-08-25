@@ -24,9 +24,14 @@ $${\color{#35373B} me \space and \space nash \space trust!! ⬆️}$$
 
 ![](https://64.media.tumblr.com/65e09dd8b314de938444e71971b6d1ab/e02f44a3f3025498-6e/s1280x1920/f1324cf80f75606760cb714761247e7aeb7bae7d.pnj)
 
+ <div align="right"> 
+
+![](https://64.media.tumblr.com/734c1fddbcae04cc42a43437faa3856c/81c1d2458af4a10a-ff/s540x810/252d50ec30c1041522b861105364434988817ff6.webp)
+
  <div align="left"> 
 
 ![fatty](https://64.media.tumblr.com/9991aa0a006fbcfc4bbc80621fbfd41f/a29e970ef39c6e4d-6d/s400x600/860ed9479eb50b378842b0c0f7e3d8d4dcfed6da.webp) ![](https://s8.ezgif.com/tmp/ezgif-8ad9f8bbd5241113.png)
+
 
 ---
 
