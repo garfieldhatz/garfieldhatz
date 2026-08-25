@@ -70,6 +70,17 @@ click me for my stamp/blinkie collection LOSER
   
 </p>
   
+
+my fucking dork friends calling my mom hot and being mean to me compilation/hj
+
+![](https://64.media.tumblr.com/0d65b8a424aec1330a61657dfad6bae1/e6383b2c77c6008e-63/s400x600/89219fa44d22b81b5cb55ba0268e738cccdaebf5.gifv)
+
+
+<img width="636" height="488" alt="Screenshot 2026-08-25 184339" src="https://github.com/user-attachments/assets/7bd382ee-0683-468a-98cd-880f5340d72f" />
+<img width="632" height="244" alt="image" src="https://github.com/user-attachments/assets/173645dd-fa02-4e63-acac-0e607a53bb6d" />
+<img width="637" height="307" alt="image" src="https://github.com/user-attachments/assets/8f5d10c2-63fc-47a4-929c-188db7068856" />
+
+
 ---
 
 <p align="center"> <img width="490" height="400" alt="image" src="https://github.com/user-attachments/assets/c3105a0c-1d27-4135-bd4c-01dcbaccc8f9" />
