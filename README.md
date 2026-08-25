@@ -36,7 +36,7 @@ $${\color{#a1a3a5} roy \space kin \space doubles \space dni \space or \space im 
 
 
 
-
+![](https://64.media.tumblr.com/dae41d61eb03126e2b8b3b83841f6174/e6383b2c77c6008e-0c/s2048x3072/d49352f2cd901db29e3c0b123f281ed0fc4128a7.gifv)
 
 
 ---
