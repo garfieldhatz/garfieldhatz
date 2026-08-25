@@ -22,7 +22,7 @@
 
 $${\color{#35373B} me \space and \space nash \space trust!! ⬆️}$$
 
-roy doubles dni or im gonna rip your left nut off yo
+$${\color{#a1a3a5} roy \space kin \space doubles \space dni \space or \space im \space gonna \space rip \space your \space left \space nut \space off}$$
 
 ![](https://64.media.tumblr.com/65e09dd8b314de938444e71971b6d1ab/e02f44a3f3025498-6e/s1280x1920/f1324cf80f75606760cb714761247e7aeb7bae7d.pnj)
 
