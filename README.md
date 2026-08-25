@@ -56,8 +56,33 @@ $${\color{#a1a3a5} roy \space kin \space doubles \space dni \space or \space im 
 
 ![](https://64.media.tumblr.com/dc0f2198244043ddafd86967f457e7dd/6a4ab4b6fd791e7b-24/s100x200/574405a7e77e50136faf05afef1cbd9900096b85.gifv) ![](https://64.media.tumblr.com/767c6ad2e83f0c248590dbe47fc02e26/6a4ab4b6fd791e7b-21/s100x200/3666c181371b7ebf380e39184403c88bf7f855bd.gifv) ![](https://64.media.tumblr.com/9da9e0137419170f0c49162262b18a17/6a4ab4b6fd791e7b-d7/s100x200/0bd02f6d250df108df1b28e83c274e2be303caf5.gifv)
 
+![](https://64.media.tumblr.com/81f13d6e48c4f1d21dbbed539c6579c8/2eaf92485d9e8f59-5c/s100x200/3003a98de631ac8340edb1a1e23e0c3ac5979201.pnj)
+
+![](https://64.media.tumblr.com/4e3dff771652aa792040f12d89f062e6/382e7f15eab99436-31/s250x400/837b14910c4e9e93ddbf51211a66ad0f40a62dcc.pnj) ![](https://64.media.tumblr.com/f34a4d5896004c348ca6821f570b2d14/382e7f15eab99436-bc/s250x400/d54ca89198c9ccb67c00c5e3870d7ffe23f4eab0.pnj) ![](https://64.media.tumblr.com/99f0fa8f27444cb5a4dbdde5f08a61c1/382e7f15eab99436-c5/s250x400/831902e50dc1f1a6e7383b570414d16def30f5e9.pnj) 
+
+
+![](https://64.media.tumblr.com/74b6f181d04a6a508d817d5a937bd41a/c6e1be4eb93c3d73-c4/s100x200/9e14338faab69742206083e88d80380380876800.webp)
+
 </details>
 
+<div align="center"> 
+<details>
+  <summary>this user is..</summary>
+  
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/347825e4-350a-4931-89b1-8b11cd12dbac" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/87e711ce-79a0-48ca-b140-44f227ddb24d" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/e02da55a-fd10-458b-a060-4ec1262a33b9" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/c951fd95-2267-416e-92e1-712b221acdad" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/1e190de9-f07a-4ee2-9f19-be496541543d" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/aac40024-1d53-4bd8-8324-6a01f1c0cc2b" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/0b914fc0-bfde-4c1b-9c1d-abec664a70ee" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/2205ec68-feab-4e7b-8b8f-3acfa26c841e" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/2a8ce19d-6807-4543-83e9-c99190c82713" />
+<img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/8dc4cb6e-0ecc-4e07-a89b-3eca0f024bf8" />
+
+  
+</details>
+  
 </p>
   
 ---
