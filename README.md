@@ -82,6 +82,7 @@ my fucking dork friends calling my mom hot and being mean to me compilation and 
 <img width="613" height="464" alt="image" src="https://github.com/user-attachments/assets/6c4c578a-40b2-446d-b297-2907d6ee960b" />
 <img width="624" height="406" alt="Screenshot 2026-08-25 185443" src="https://github.com/user-attachments/assets/45b1abf6-8597-425b-880e-c25dcf6006cf" />
 <img width="606" height="428" alt="Screenshot 2026-08-25 185453" src="https://github.com/user-attachments/assets/96e59911-bfa3-4477-99e8-39770b9795cd" />
+<img width="628" height="221" alt="image" src="https://github.com/user-attachments/assets/05163632-8c28-418d-907c-8c12d2085d7e" />
 
 
 ---
