@@ -78,6 +78,8 @@ as long as your not a creep you can int with me..
 
 btw don't fucking talk to me if you call every hypno (pkmn) a pedophile genuinely kys
 
+also please don't be afraid to talk to me i promise im not a dick as long as im in a good mood im just bipolar af 🥺🙏
+
 </p>
   
 
