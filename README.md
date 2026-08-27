@@ -65,15 +65,29 @@ click me for my stamp/blinkie collection LOSER
 <img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/2a8ce19d-6807-4543-83e9-c99190c82713" />
 <img width="600" height="110" alt="image" src="https://github.com/user-attachments/assets/8dc4cb6e-0ecc-4e07-a89b-3eca0f024bf8" />
 
-  
 </details>
-  
+
+
+<div align="center"> 
+<details>
+  <summary>Dni</summary>
+
+uhhhh i don't really have a specific dni i just block
+
+as long as your not a creep you can int with me..
+
+btw don't fucking talk to me if you call every hypno (pkmn) a pedophile genuinely kys
+
 </p>
   
 
-my fucking dork friends calling my mom hot and being mean to me compilation and being dorks/hj
+
+</details>
 
 ![](https://64.media.tumblr.com/0d65b8a424aec1330a61657dfad6bae1/e6383b2c77c6008e-63/s400x600/89219fa44d22b81b5cb55ba0268e738cccdaebf5.gifv)
+
+my fucking dork friends calling my mom hot and being mean to me compilation and being dorks/hj
+
 
 
 <img width="636" height="488" alt="Screenshot 2026-08-25 184339" src="https://github.com/user-attachments/assets/7bd382ee-0683-468a-98cd-880f5340d72f" />
